@@ -124,7 +124,7 @@ p-value = 0.9879
 
 **Enock Bereka**  
 📍 Kakamega, Kenya  
-📧 [your-email@example.com]  
+📧 [My Email](enochwafulah254@gmail.com)  
 🔗 [LinkedIn Profile](https://linkedin.com/in/enockbereka)
 
 ---
